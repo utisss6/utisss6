@@ -1,1 +1,1 @@
-ciao, qui pubblicherò tutti gli script fatti da me 
+non rivende  la mia roba fallito
